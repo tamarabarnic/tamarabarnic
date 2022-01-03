@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tamarabarnic 👩🏻‍💻
-- 👀 I’m interested in - web development, ux, technology in general, movies and tv shows, edditing, anthropology... 
+- 👀 I’m interested in - web development, ux, technology in general, movies and tv shows, edditing, anthropology, F1... 
 - 🌱 I’m currently learning - next.js, piano and how to keep house plants alive..
 - 📫 How to reach me - @tamarabarnic on LinkedIn, Instagram, Twitter, Facebook..
 
